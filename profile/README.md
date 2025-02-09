@@ -1,4 +1,4 @@
-# Bandicut Video Cutter 3.1.3.454 Crack free download Version [Latest]
+# Bandicut Cutter free download Version [Latest]
 
 Bandicut Video Cutter Crack Free Download is ultra-fast video cutting/merging software with an easy-to-use interface. It allows users to quickly trim part of the video while maintaining the original video quality.
 
